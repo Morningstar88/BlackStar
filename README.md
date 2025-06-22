@@ -1,7 +1,7 @@
 # BlackStarProductions
 Bring Matt Prosser back to the show..
 
-##[Click here to message me. No phone, off-grid. Latest Messages here](https://tlk.io/blackstar)
+## [Secret gig announcements here. Click here to message me in live chat. No phone, off-grid.](https://tlk.io/blackstar)
 
 
 ATTN TEMPLE FILM CREW
