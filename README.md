@@ -8,6 +8,8 @@ Bring Matt Prosser and Alisdair Dunsmuir back to the show!
 
 #### គ្មានទូរស័ព្ទ រស់នៅក្រៅបច្ចេកវិទ្យា។ Phonetic: Kmean to-ro-sap, ros nov kraw bachek vityea.
 
+[Brainstorming thread. Help us produce these vids, and more.](https://github.com/Morningstar88/BlackStar/issues/1)
+
 ## **AFFIDAVIT OF CREATIVE SERVICES & LIVESTREAM EXCHANGE OFFER**  
 
 ATTN TEMPLE FILM CREW
