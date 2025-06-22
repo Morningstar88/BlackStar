@@ -10,7 +10,8 @@ Bring Matt Prosser and Alisdair Dunsmuir back to the show!
 
 ATTN TEMPLE FILM CREW
 
-**AFFIDAVIT OF CREATIVE SERVICES & LIVESTREAM EXCHANGE OFFER**  
+## **AFFIDAVIT OF CREATIVE SERVICES & LIVESTREAM EXCHANGE OFFER**  
+
 _By Jack Maclavity, semi-feral cortex hacker and music / software teacher_
 
 I, Jack Maclavity—currently orbiting Siem Reap,—do hereby solemnly affirm that I’m ready to barter vids and rants in exchange for the following:
