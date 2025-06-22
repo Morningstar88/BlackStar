@@ -8,9 +8,9 @@ Bring Matt Prosser and Alisdair Dunsmuir back to the show!
 
 #### គ្មានទូរស័ព្ទ រស់នៅក្រៅបច្ចេកវិទ្យា។ Phonetic: Kmean to-ro-sap, ros nov kraw bachek vityea.
 
-ATTN TEMPLE FILM CREW
-
 ## **AFFIDAVIT OF CREATIVE SERVICES & LIVESTREAM EXCHANGE OFFER**  
+
+ATTN TEMPLE FILM CREW
 
 _By Jack Maclavity, semi-feral cortex hacker and music / software teacher_
 
