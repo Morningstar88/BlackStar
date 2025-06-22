@@ -51,3 +51,101 @@ Signed,
 **Jack Maclavity**  
 Available via github.com/Morningstar88/BlackStar
 
+# Casting in Khmer
+
+1. We are looking for Khmer speakers and music learners.
+English: We are looking for Khmer speakers and music learners. Khmer: យើងកំពុងស្វែងរកអ្នកនិយាយភាសាខ្មែរនិងអ្នកសិក្សាតន្រ្តី។ Phonetic: Yeung kompong svaeng rok neak niyeay phea-sa Khmer ning neak siksaa tontrai.
+
+Vocabulary:
+
+យើង (Yeung) = We
+
+កំពុងស្វែងរក (kompong svaeng rok) = are looking for
+
+អ្នកនិយាយភាសាខ្មែរ (neak niyeay phea-sa Khmer) = Khmer speakers
+
+អ្នកសិក្សាតន្រ្តី (neak siksaa tontrai) = music learners
+
+☕ 2. We will meet in nice cafés or hotel lobbies.
+English: We will meet in nice cafés or hotel lobbies. Khmer: យើងនឹងជួបគ្នានៅកាហ្វេទំនើប ឬផ្ទៃសណ្ឋាគារ។ Phonetic: Yeung neng chuob knea nov café tornaub rœ phtay santhakia.
+
+Vocabulary:
+
+យើងនឹងជួបគ្នា (Yeung neng chuob knea) = We will meet
+
+នៅកាហ្វែ (nov café) = at a café
+
+ផ្ទៃសណ្ឋាគារ (phtay santhakia) = hotel lobby
+
+🎸 3. We’ll film videos with guitar and simple language exchange.
+English: We’ll film videos with guitar and simple language exchange. Khmer: យើងនឹងថតវីដេអូចំរៀង និងប្ដូរភាសាយ៉ាងសាមញ្ញ។ Phonetic: Yeung neng thot video chom-reeang ning b'do phea-sa yang samnanh.
+
+Vocabulary:
+
+ថតវីដេអូ (thot video) = film video
+
+ចំរៀង (chom-reeang) = song/music
+
+ប្ដូរភាសា (b'do phea-sa) = language exchange
+
+យ៉ាងសាមញ្ញ (yang samnanh) = simply
+
+🧺 4. We’ll go to markets and farms to make the videos.
+English: We’ll go to markets and farms to make the videos. Khmer: យើងនឹងទៅផ្សារ និងស្រែដើម្បីថតវីដេអូ។ Phonetic: Yeung neng tov psar ning srae daembay thot video.
+
+Vocabulary:
+
+ទៅផ្សារ (tov psar) = go to the market
+
+និងស្រែ (ning srae) = and farm
+
+ដើម្បី (daembay) = in order to
+
+ថតវីដេអូ (thot video) = film video
+
+☀️ 5. It’s easy work in a friendly space.
+English: It’s easy work in a friendly space. Khmer: វាជាការងារងាយៗនៅកន្លែងស្រួលចិត្ត។ Phonetic: Vea chea kar-nga ngeay ngeay nov konlaeng sruol chet.
+
+Vocabulary:
+
+ការងារងាយៗ (kar-nga ngeay ngeay) = easy work
+
+កន្លែងស្រួលចិត្ត (konlaeng sruol chet) = comfortable space
+
+📱 6. You need a phone to help record.
+English: You need a phone to help record. Khmer: អ្នកត្រូវមានទូរស័ព្ទដើម្បីជួយថត។ Phonetic: Neak trov mean to-ro-sap daembay chuoy thot.
+
+Vocabulary:
+
+ត្រូវមាន (trov mean) = must have
+
+ទូរស័ព្ទ (to-ro-sap) = phone
+
+ជួយថត (chuoy thot) = help record
+
+📵 7. I live without a phone.
+English: I live without a phone. Khmer: ខ្ញុំរស់ដោយគ្មានទូរស័ព្ទ។ Phonetic: Khnhom ros daoy kmean to-ro-sap.
+
+Vocabulary:
+
+ខ្ញុំ (Khnhom) = I
+
+រស់ (ros) = live
+
+ដោយគ្មាន (daoy kmean) = without
+
+ទូរស័ព្ទ (to-ro-sap) = phone
+
+🎥 8. Let’s make beautiful Khmer-English videos together.
+English: Let’s make beautiful Khmer-English videos together. Khmer: យើងមកបង្កើតវីដេអូស្រស់ស្អាតជាភាសាខ្មែរជាមួយអង់គ្លេស។ Phonetic: Yeung mok bongkoet video sros sa-art chea phea-sa Khmer chea muoy English.
+
+Vocabulary:
+
+បង្កើតវីដេអូ (bongkoet video) = create videos
+
+ស្រស់ស្អាត (sros sa-art) = beautiful
+
+ជាមួយ (chea muoy) = together with
+
+ភាសាខ្មែរជាមួយអង់គ្លេស (phea-sa Khmer chea muoy English) = Khmer and English
+
